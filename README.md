@@ -3,5 +3,5 @@
 SADECE EĞİTİM KULLANIMI İÇİNDİR!
 
 
-NOT: Kitaplar dışında benim gördüğüm en iyi kaynak: 
+NOT: Kitaplar dışında önerebilceğim kaynak:
 https://www.cagataycebi.com/
